@@ -3,7 +3,7 @@
 
 # Contact:
 
-ToxicNoob.Sl4d3.Official@gmail.com
+ContactWithToxicNoob@gmail.com
 
 
 ### Visitors :
